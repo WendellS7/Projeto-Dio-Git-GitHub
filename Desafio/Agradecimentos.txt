@@ -1,0 +1,3 @@
+Olá !  
+      Quero aqui , deixar meus agradecimentos a todos da equipe da Dio e principalmente aos profissionais que me ensinaram o que sei até aqui ! 
+Quero aprender ainda mais com as mentorias e aprender ainda mais nesse Bootcamp e em outros que com certeza concluirei !
